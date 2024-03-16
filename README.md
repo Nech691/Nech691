@@ -5,8 +5,8 @@
 - 📫 How to reach me: email nech691@aukclanduni.ac.nz
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ()()
--              (^~^)
--              (>@<)*
+               (^~^)
+               (>@<)*
 
 <!---
 Nech691/Nech691 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
