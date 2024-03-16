@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on school projects for now
 - 📫 How to reach me: email nech691@aukclanduni.ac.nz
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ()()
+- ⚡ Fun fact: ()() 
                (^~^)
                (>@<)*
 
